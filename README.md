@@ -1,6 +1,6 @@
 iko[![-----------------------------------------------------](https://raw.githubusercontent.com/andreasbm/readme/master/assets/lines/colored.png)](#table-of-contents)
 <p align="center">
-    <a href="https://ibb.co/N6NMDtn"><img src="https://https://telegra.ph/schizard00-bot-01-15" alt="01" border="0" /></a>
+    <a href="https://ibb.co/N6NMDtn"><img src="https://ibb.co/CvH4gsT" alt="01" border="0" /></a>
 </p>
 
 
