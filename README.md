@@ -1,17 +1,17 @@
 iko[![-----------------------------------------------------](https://raw.githubusercontent.com/andreasbm/readme/master/assets/lines/colored.png)](#table-of-contents)
 <p align="center">
-    <a href="https://ibb.co/N6NMDtn"><img src="https://telegra.ph/file/748df8b3b52de9d1d25da.jpg" alt="01" border="0" /></a>
+    <a href="https://ibb.co/N6NMDtn"><img src="https://https://telegra.ph/schizard00-bot-01-15" alt="01" border="0" /></a>
 </p>
 
 
                      
                       
    <div align="center">
-                      👑<b>KING IBRAHIM MD</b>👑</b>
+                      👑<b>schizard MD</b>👑</b>
   <div align="center">
 </p>
 </a>
-<h1 align="center"><b>HEY I AM KING IBRAHIM</b><img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="35"></h1>
+<h1 align="center"><b>HEY I AM schizard00</b><img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="35"></h1>
 
 
 <p align="center">
@@ -19,9 +19,9 @@ iko[![-----------------------------------------------------](https://raw.githubu
 </p>
                        
                        
-  𝗢𝗪𝗡𝗘𝗥 𝗡𝗔𝗠𝗘 : 𝗜𝗕𝗥𝗔𝗛𝗜𝗠 𝗡𝗚𝗢𝗬𝗔
+  𝗢𝗪𝗡𝗘𝗥 𝗡𝗔𝗠𝗘 : SCHIZARD
                        
- 𝗢𝗪𝗡𝗘𝗥 𝗡𝗨𝗠𝗕𝗘𝗥 : +25410772666
+ 𝗢𝗪𝗡𝗘𝗥 𝗡𝗨𝗠𝗕𝗘𝗥 : +254 784355897
                        
   𝗠𝗔𝗗𝗘 𝗜𝗡 𝗞𝗘𝗡𝗬𝗔😂🇰🇪😂🤣 
   
@@ -57,17 +57,17 @@ EXAMPLE PUT IN YOUR NUMBER: 2547XXXXXXXX,THEN TAP SUBMIT AND COPY THAT CODE TO Y
 
 
 ### Thanks To
-- [Sam Pamday](https://github.com/Sampandey001) 
+- [Sam Pamday](https://github.com/kimutailangat) 
 
 
-The 𝙆𝙄𝙉𝙂 𝙄𝘽𝙍𝘼𝙃𝙄𝙈 𝙈𝘿 is made available under the [GPL-3 license](https://github.com/SuhailTechInfo/Suhail-Md/blob/main/LICENCE).
+The SCHIZARD is made available under the [GPL-3 license](https://github.com/SuhailTechInfo/Suhail-Md/blob/main/LICENCE).
 
 
 <h2 align="center">  NOTICE
 </h2>
    
 ## 
-𝙆𝙄𝙉𝙂 𝙄𝘽𝙍𝘼𝙃𝙄𝙈 𝙈𝘿
+<b>SCHIZARD</b> 𝙈𝘿
 
 
 
